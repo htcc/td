@@ -1,4 +1,3 @@
-# td
 &#8226; 三 退 管 道...退 党 网：
 <a href="http://622.dtdns.net/read/go/8/" target="_blank">网址一</a>
 　<a href="http://65.wiki.gd/read/go/8/" target="_blank">网址二</a>
